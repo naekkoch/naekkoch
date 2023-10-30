@@ -3,7 +3,7 @@
 - 💻 Im looking for my first opportunity as a Dev. in the technology area
 - 🌱 Currently studying JavaScript, React, Html, Css and Python
 - 📫 Contact me by email: contatonaekkoch@gmail.com
-- 💬 Pronouns: She/Her
+- 🚀 starting now, but thinking about the future.
 
 <div>
   <a href="https://github.com/naekkoch">
