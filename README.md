@@ -1,4 +1,4 @@
-## Hii! i'm Micaela Naekkoch
+## OOIIEE EU SO A MICAela 😂🤣👍 HAHAHAHA
 
 - 💻 Im looking for my first opportunity as a Dev. in the technology area
 - 🌱 Currently studying JavaScript, React, Html, Css and Python
